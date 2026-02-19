@@ -1,1 +1,1 @@
-# 24-7-3D-prints
+# 24-7-3d-prints
